@@ -1,1 +1,0 @@
-# hardygreens_website
